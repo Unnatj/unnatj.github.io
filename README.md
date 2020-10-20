@@ -1,3 +1,3 @@
 # unnatj.github.io
 
-This is meme birthday page for unnat Jain's birthday
+This is meme birthday page for Unnat Jain's birthday
